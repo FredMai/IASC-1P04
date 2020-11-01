@@ -29,3 +29,35 @@
 "Desolate" by Mike Chen aka Full Time Taekwondo Dad is licensed under CC BY-NC-ND 2.0
 
 ---
+
+"Wind Sound"
+By Mike Koenig
+2009 - Licensed under
+Creative Commons
+Attribution (3.0)
+
+---
+
+"Wind Sound"
+By Mark DiAngelo
+2011 - Licensed undee
+Creative Commons
+Attribution (3.0)
+
+---
+
+"Rustle Sound"
+By Caroline Ford
+2009 - Licensed under 
+Creative Commons
+Attribution (3.0)
+
+---
+
+"Cicada Sound"
+By Mike Koenig
+2009 - Licensed under
+Creative Commons
+Atribution (3.0)
+
+---
