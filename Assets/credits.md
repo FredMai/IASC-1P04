@@ -58,6 +58,23 @@ Attribution (3.0)
 By Mike Koenig
 2009 - Licensed under
 Creative Commons
-Atribution (3.0)
+Attribution (3.0)
 
 ---
+
+"Wolf Growling Fierecly Sound"
+By Unknown
+2010 - Licensed under
+Creative Commons
+For Personal Use Only
+
+---
+
+"Creepy Background Sound"
+By Daniel Simon
+2017 - Licensed under 
+Creative Commons
+Attribution (3.0)
+
+---
+
