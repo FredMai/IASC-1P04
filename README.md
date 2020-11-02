@@ -6,6 +6,11 @@ Welcome to the website for my Twine Game, created for the course IASC-1P04 at Br
 
 Playtest my game [here]
 
+## Prototype
+
 ## Game Proposal Document
 
-Read the documantation for my game [here]
+Play my prototype [here]
+
+Read the documantation for my game [here](Prototype/Desolate.html)
+
