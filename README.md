@@ -8,9 +8,10 @@ Playtest my game [here]
 
 ## Prototype
 
+Play my prototype [here](Prototype/Desolate.html)
 ## Game Proposal Document
 
 Play my prototype [here]
 
-Read the documantation for my game [here](Prototype/Desolate.html)
+Read the documantation for my game [here]
 
