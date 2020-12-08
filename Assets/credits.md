@@ -30,6 +30,30 @@
 
 ---
 
+"Dark tunnel" by magnetbox is licensed under CC BY 2.0
+
+---
+
+"Dark Hole" by robnguyen01 is licensed under CC BY-SA 2.0
+
+---
+
+"Water Drop Sound"
+By Daniel Simion
+Liscensed under
+Creative Commons
+Attribution 3.0
+
+---
+
+"Crumbling-Mike_Koenig-1123041125"
+By Mike Koenig
+2011 - Liscensed under
+Creative Commons
+Attribution 3.0
+
+---
+
 "Wind Sound"
 By Mike Koenig
 2009 - Licensed under
