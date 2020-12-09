@@ -34,7 +34,7 @@
 
 ---
 
-"Dark Hole" by robnguyen01 is licensed under CC BY-SA 2.0
+"a forest shrine" by randomidea is licensed under CC BY 2.0
 
 ---
 
@@ -43,6 +43,13 @@ By Daniel Simion
 Liscensed under
 Creative Commons
 Attribution 3.0
+
+---
+
+"Large Thump Or Bump Sound"
+By Unknown
+2009 - Liscensed under
+Personal Use Only
 
 ---
 
